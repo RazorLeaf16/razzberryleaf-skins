@@ -30,10 +30,10 @@
 # [leafidkname](https://ulric.s-ul.eu/DX8uEKw3) (7/12/2026)
 <img width="1920" height="1080" alt="screenshot269" src="https://github.com/user-attachments/assets/136b7586-3e2a-4e96-a27f-3cedd11d3341" />
 
-# [leafidkname dt](https://ulric.s-ul.eu/VHp89Xso) | remake of [this skin](https://www.youtube.com/watch?v=l2g3oOJXUbc) (7/12/2026)
+# [leafidkname dt](https://ulric.s-ul.eu/VHp89Xso) (7/12/2026)
 <img width="1920" height="1080" alt="screenshot270" src="https://github.com/user-attachments/assets/5d466584-a279-4666-99c2-d59598bad019" />
 
-# [Никита (remake)](https://ulric.s-ul.eu/jDqrxD9H) (7/12/2026)
+# [Никита (remake)](https://ulric.s-ul.eu/jDqrxD9H) | remake of [this skin](https://www.youtube.com/watch?v=l2g3oOJXUbc) (7/12/2026)
 <img width="1920" height="1080" alt="screenshot271" src="https://github.com/user-attachments/assets/62118083-ed4c-4b6d-aa6a-5dfa790ac3bb" />
 
 # [dtskinidk](https://ulric.s-ul.eu/zXoOLin9) (7/12/2026)
