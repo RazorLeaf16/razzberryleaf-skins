@@ -51,7 +51,7 @@
 # [tekkito2at2x](https://ulric.s-ul.eu/r6I5YfrQ) (6/15/2026)
 <img width="1920" height="1080" alt="screenshot244" src="https://github.com/user-attachments/assets/40d1df41-f04b-4c14-8f7a-abc8322bd41f" />
 
-# [asdfdasfasdf](https://ulric.s-ul.eu/JijeX6dt) | zadymiarz x selyu (5/1/2026)
+# [asdfdasfasdf](https://ulric.s-ul.eu/JijeX6dt) | zadymiarz x flyingtuna (5/1/2026)
 <img width="1920" height="1080" alt="screenshot177" src="https://github.com/user-attachments/assets/eb97f148-c269-47ba-8a8c-d18e4b21c3b6" />
 
 # [lovesick](https://ulric.s-ul.eu/dk18YduY) (4/20/2026)
